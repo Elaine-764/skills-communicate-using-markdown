@@ -1,5 +1,5 @@
 # Daily Learning
-
+ideas here
 
 ## Morning Planning
 
